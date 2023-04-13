@@ -1,1 +1,2 @@
-karla agular
+Karla Agular
+Laura Serrratos
